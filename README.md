@@ -24,4 +24,3 @@ Here are some ideas to get you started:
 
 📫 Reach me:
 - WeChat : BlackRain_1
-- E-mail : wangning4567@163.com
